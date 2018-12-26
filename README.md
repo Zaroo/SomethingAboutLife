@@ -1,2 +1,2 @@
 # SomethingAboutLife
-Life is Colorful🌄
+🌄 Life is Colorful ~
